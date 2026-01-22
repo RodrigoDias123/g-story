@@ -1,1 +1,1 @@
-# g-story
+Nos dias seguintes, Henrique cuidou do pássaro com carinho, oferecendo-lhe grãos e água, e construindo uma pequena gaiola feita à mão para ele. O pássaro, embora ainda cauteloso, parecia se sentir cada vez mais em casa. Durante as noites silenciosas, ele cantava uma melodia suave que enchia a oficina de uma energia misteriosa. Henrique, curioso, começou a notar que as peças de madeira que ele criava ganhavam um brilho especial quando o pássaro cantava.
