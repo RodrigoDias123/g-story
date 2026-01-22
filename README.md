@@ -1,1 +1,1 @@
-# g-story
+Com o tempo, Henrique descobriu que o pássaro não era apenas uma criatura comum, mas um ser mágico, capaz de conferir poder e beleza às obras de quem o cuidasse. A cada dia, ele conseguia criar mais e mais peças incríveis, que logo se espalharam por toda a vila. Todos os que viam seus trabalhos ficavam maravilhados, e logo, a oficina de Henrique se tornou um ponto de visitação obrigatório para quem buscava algo único.´
