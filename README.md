@@ -1,1 +1,3 @@
 # g-story
+
+No coração de uma pequena vila, rodeada por montanhas verdes e campos dourados, morava um velho artesão chamado Henrique. Ele passava os dias criando belos objetos de madeira, que pareciam ganhar vida sob suas mãos habilidosas. A sua oficina, um espaço acolhedor repleto de cheiros de pinho e cedro, era um lugar mágico, onde o tempo parecia parar. Apesar de ser um homem solitário, Henrique nunca se sentia sozinho, pois cada peça que criava lhe fazia companhia.
